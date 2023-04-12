@@ -1,4 +1,4 @@
-<center><img src="https://user-images.githubusercontent.com/34670018/231360403-41888ac8-4820-4ac6-aa23-843dc93a6a99.png"></center>
+![logo-h](https://user-images.githubusercontent.com/34670018/231368487-e7c3cb78-1f6c-4a1e-9abd-8af4807a7fdc.png)
 
 # Manifesto for Open Socialism:
 
